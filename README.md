@@ -12,4 +12,4 @@ Yurii Kovtun: https://radeuce6069.myportfolio.com/illustrations
 
 Justin Zhao https://dribbble.com/justinnnnn
 
-wallpapersden (unknown) images.wallpapersden.com
+wallpapersden (unknown) https://images.wallpapersden.com

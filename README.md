@@ -13,3 +13,5 @@ Yurii Kovtun: https://radeuce6069.myportfolio.com/illustrations
 Justin Zhao https://dribbble.com/justinnnnn
 
 wallpapersden (unknown) https://images.wallpapersden.com
+
+Amy studios https://twitter.com/amy_studios
